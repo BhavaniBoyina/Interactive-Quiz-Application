@@ -29,4 +29,6 @@ In conclusion, the Interactive Quiz Application serves as a practical demonstrat
 
 OUTPUT:
 
+![Image](https://github.com/user-attachments/assets/48575877-74b1-4691-98f8-7778111518d9)
+
 
