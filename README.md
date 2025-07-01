@@ -33,4 +33,14 @@ OUTPUT:
 
 ![Image](https://github.com/user-attachments/assets/db934aa0-4f89-447b-a51c-3792ef093f3c)
 
+![Image](https://github.com/user-attachments/assets/484ab634-8a1f-49d1-b7b7-be22fbd4196f)
+
+![Image](https://github.com/user-attachments/assets/2513ac88-f4f5-4ce0-960b-ce0acd6bfb26)
+
+![Image](https://github.com/user-attachments/assets/55142698-8e7a-4cf8-9a51-39b83c955bf5)
+
+![Image](https://github.com/user-attachments/assets/2bd3d0de-0473-4ec2-a5ec-6617d67f3524)
+
+![Image](https://github.com/user-attachments/assets/57c69818-6446-4b31-beaf-15643ee3a0e2)
+
 
